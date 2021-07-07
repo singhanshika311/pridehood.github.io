@@ -1,6 +1,6 @@
 ### Visit the website here https://pridehood.us/
 
-"PRIDEHOOD" is a platform for the LGBTQIA+ community. Feeling Sad and depressed, need to fight stigma? Pridehood is there to help you.
+"PRIDEHOOD" is a platform for the LGBTQIA+ community. Feeling Sad and depressed, need to fight stigma? Pridehood is there to help you..
 
 ## Inspiration
 
